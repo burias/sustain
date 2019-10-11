@@ -1,1 +1,1 @@
-# sustain
+# Sustainability Committee
